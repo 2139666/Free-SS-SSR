@@ -1,4 +1,8 @@
 # Free-SS-SSR
+Ssr  v2订阅白嫖
+速度超快，秒开YouTube2k无压力自己用了很久了
+https://xbsj9895.xyz/i/iv200422/04X8pfR
+
 
 谢谢大家一直以来的支持:blush:，为了方便统一维护，本项目已迁移到：[www.youneed.win](https://www.youneed.win)
 
